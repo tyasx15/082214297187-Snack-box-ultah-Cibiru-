@@ -7,5 +7,4 @@ Selain rasanya yang lezat, **Cemilan Praktis Buahbatu** hadir dalam kemasan yang
 Teh Rita
 Hubungi Kontak dibawahini
 082214297187
-https://paketsnackpremiumbuahbatu.blogspot.com/
-https://baskadia.com/post/8jv0e
+https://justpaste.it/avknd
